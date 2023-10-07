@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hopelatta
-- 👀 I’m interested in working at the intersection of art and technology
+- 👀 I love patterns in art, math, and technology. I also love empty spaces. 
 - 🌱 I’m currently learning about how to better communicate my ideas
-- 📫 How to reach me hopelatta@hotmail.com
+- 📫 How to reach me hol211@g.harvard.edu
 
 <!---
 hopelatta/hopelatta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
