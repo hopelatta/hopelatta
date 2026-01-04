@@ -1,6 +1,9 @@
 - 👋 Hi, I’m @hopelatta
 - 👀 I love patterns in art, math, and technology. I also love empty spaces. 
 - 🌱 I’m currently learning about how to better communicate my ideas
+- 👫 I'm interested in dating apps, trust & safety, and family creation
+- 🔮 I also love jazz music from the 1950s and 60s
+- 📌 Projects: 
 - 📫 How to reach me hopelatta@alumni.harvard.edu
 
 <!---
